@@ -1,11 +1,19 @@
-### Hi there 👋
+Hi there! 👋
 
-- 🔭 I’m currently working on **Metaverse**
-- 🌱 I’m currently learning **Unreal Engine**
-- 👯 I’m looking to collaborate on **People with good logical thinking**
-- 🤔 I’m looking for help with **People upskilling me**
-- 💬 Ask me about **Logics**
-- 📫 How to reach me: www.linkedin.com/in/karthinivash-s-r-13b85a209
-- 😄 Pronouns: **Karthinivash**
-- ⚡ Fun fact: **You can't kill yourself by holding your breath**
+🔭 I’m currently working on **shaping the future of gaming** as a Quality Analyst.
 
+📚 Pursuing a Master's degree in **AI and Machine Learning** to fuel my passion for cutting-edge technology.
+
+👯‍♀️ Seeking collaborations with like-minded individuals with a passion for **innovation and logical thinking**.
+
+🌱 Constantly evolving and honing my skills to transition into a career as a **Data Scientist**.
+
+🤔 Looking for mentorship and guidance from seasoned professionals to accelerate my growth.
+
+💬 Let's discuss anything related to logic, gaming, AI, or the future of technology!
+
+📫 Reach me at **LinkedIn**(www.linkedin.com/in/karthinivash-s-r-61b057170) to connect and explore opportunities.
+
+😄 Pronouns: Karthinivash
+
+⚡ Fun fact: Did you know that you can't kill yourself by holding your breath? Let's keep breathing and exploring new horizons together!
