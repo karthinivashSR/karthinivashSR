@@ -1,6 +1,6 @@
 Hi there! 👋
 
-🔭 I’m currently working on **shaping the future of gaming** as a Quality Analyst.
+🔭 I'm currently contributing to **data-driven decision-making** as a Data Analyst, helping shape the future through actionable insights.
 
 📚 Pursuing a Master's degree in **AI and Machine Learning** to fuel my passion for cutting-edge technology.
 
